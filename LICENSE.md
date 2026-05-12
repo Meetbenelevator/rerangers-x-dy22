@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Scripts underground offers the most advanced re:rangers x Script, with custom skins and aimbot. Perfect for dominating any match.
 
 
 
